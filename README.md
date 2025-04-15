@@ -1,1 +1,0 @@
-# marineyeong.github.io
